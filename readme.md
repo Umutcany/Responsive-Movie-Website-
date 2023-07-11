@@ -1,0 +1,1 @@
+![Resim](image.png)
